@@ -1,1 +1,1 @@
-![](https://media.giphy.com/media/QMHoU66sBXqqLqYvGO/giphy.gif)
+<p align='center'> ![](https://media.giphy.com/media/QMHoU66sBXqqLqYvGO/giphy.gif)</p>
